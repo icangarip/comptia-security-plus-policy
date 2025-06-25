@@ -183,4 +183,4 @@ For data protection inquiries specific to EU users, you may contact our Data Pro
 
 ---
 
-**This Privacy Policy was last updated on December 25, 2024, and is effective immediately.**
+**This Privacy Policy was last updated on June 25, 2025, and is effective immediately.**
