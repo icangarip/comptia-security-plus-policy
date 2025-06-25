@@ -1,7 +1,7 @@
 # Privacy Policy for Zenith: Face Yoga
 
-**Effective Date:** December 25, 2024  
-**Last Updated:** December 25, 2024
+**Effective Date:** June 25, 2025
+**Last Updated:** June 25, 2025
 
 ## Introduction
 
