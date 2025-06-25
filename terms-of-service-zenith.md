@@ -312,4 +312,4 @@ By using Zenith: Face Yoga, you acknowledge that you have read, understood, and 
 
 ---
 
-**These Terms of Service were last updated on December 25, 2024, and are effective immediately.**
+**These Terms of Service were last updated on June 25, 2025, and are effective immediately.**
